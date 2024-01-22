@@ -1,0 +1,1 @@
+Lecture playlist: https://www.youtube.com/playlist?list=PL3RC5PtX6jXuPIGH08bouH-LXmG01NwsG
